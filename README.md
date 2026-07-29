@@ -12,4 +12,4 @@
 * [(https://drive.google.com/drive/folders/115riK05fCT2lOtFNr6OAwzaay9NJIRlQ?usp=sharing
 )]
 * [(https://www.instagram.com/marie.corderot/)]
-* [https://www.tiktok.com/@marie.corderot)]
+* [(https://www.tiktok.com/@marie.corderot)]
